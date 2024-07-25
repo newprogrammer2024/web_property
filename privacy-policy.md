@@ -40,8 +40,8 @@ We may update this Privacy Policy from time to time. We will notify you of signi
 
 If you have any questions or concerns about this Privacy Policy or our privacy practices, please contact us at:
 
-Email: email@example.com
-Address: [Your Address]
+Email: morninksell@gmail.com
+
 8. Your Consent
 
 By using our services, you consent to this Privacy Policy and the collection and use of your personal information as described above.
